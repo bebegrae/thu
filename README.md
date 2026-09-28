@@ -1,6 +1,6 @@
 # Carlos Cruz
 
-> **Madrid, Spain** | **Economics & Analytics** | **THU & CEU San Pablo**
+> **Madrid, Spain** | **Business Administration & Business Analytics** | **THU & CEU San Pablo**
 
 ---
 
